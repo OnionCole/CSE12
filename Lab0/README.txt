@@ -1,0 +1,1 @@
+I, Cole Anderson, have read and understood the CSE12 syllabus and Personal Responsibility Document. 1737531 7 January 2020
